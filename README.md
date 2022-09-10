@@ -1,2 +1,2 @@
-# temp-repo
+# have a nice day *^^*
 for study
